@@ -1,1 +1,2 @@
 Oi
+Allahu Akbar
